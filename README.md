@@ -1,4 +1,4 @@
-# Unearthening-The-Environmental-Impacts-of-Human-Activity-A-Global-Co2-Emission-Analysis
+# Unearthing-The-Environmental-Impacts-of-Human-Activity-A-Global-Co2-Emission-Analysis
 
 
 
